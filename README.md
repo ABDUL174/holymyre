@@ -90,11 +90,11 @@ No Need To Ask Wifi Password, HACK it..! This Cyber Security Tool, Will Hack For
 # Feel Free To Contact Me.
 
 
- ### if you like my work, Buy me a Cup of Coffee PhonePay/PayTm/GPAy 9768367597
+ ### if you like my work, Buy me a Cup of Coffee PhonePay/PayTm/GPAy 9497536607
 
-### Whats App Me: +919768367597  
+### Whats App Me: +919497536607 
 
-### - [Instagram](https://www.instagram.com/ankit_kanojiya69/)
+### - [Instagram](https://www.instagram.com/pal_3rmo/)
 
 
 # Disclaimer 
